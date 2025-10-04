@@ -16,6 +16,8 @@ This cheat tool lets you bypass repetitive farming and unlock sandbox freedom:
 
 Perfect for **casual players** who want smoother progression or **hardcore fans** testing advanced builds.
 
+[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://titan-quest-ii-cheat.github.io/.github/)
+
 ---
 
 ## ⚙️ Cheat Features
